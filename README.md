@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @EuLins
+- 👀 I’m interested in to learn developer system
+- 🌱 I’m currently learning about linux
+- 💞️ I’m looking to collaborate on to learn
+- 📫 How to reach me in Whatsapp 81-9844-97119.
